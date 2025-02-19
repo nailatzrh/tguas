@@ -14,3 +14,20 @@ Langit dan bumi berpadu indah
 Dalam harmoni alam semesta  
 Mengingatkan kita betapa megahnya  
 Ciptaan Yang Maha Kuasa
+
+## Musim Semi
+
+Bunga-bunga bermekaran  
+Warna-warni menghias taman  
+Kupu-kupu beterbangan  
+Menyambut hari dengan keceriaan
+
+Rumput hijau berembun pagi  
+Angin lembut membelai daun  
+Burung-burung bernyanyi riang  
+Menyambut musim penuh harapan
+
+Langit biru cerah berseri  
+Mentari hangat menyapa bumi  
+Musim semi telah tiba kembali  
+Membawa kehidupan yang baru lagi
