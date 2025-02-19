@@ -31,3 +31,20 @@ Langit biru cerah berseri
 Mentari hangat menyapa bumi  
 Musim semi telah tiba kembali  
 Membawa kehidupan yang baru lagi
+
+## Mie Ayam
+
+Aroma semerbak mengundang selera  
+Mie kuning berkilau di mangkuk putih  
+Potongan ayam lembut tersedia  
+Suwiran kenyal dalam kuah jernih
+
+Daun bawang dan seledri menghias  
+Minyak wijen menambah citarasa  
+Pangsit goreng renyah menggemas  
+Sambal merah menggoda di sisinya
+
+Warisan kuliner nan membanggakan  
+Dari generasi ke generasi bertahan  
+Mie ayam, hidangan kesayangan  
+Yang menghangatkan hati dan pikiran
