@@ -31,3 +31,20 @@ Langit biru cerah berseri
 Mentari hangat menyapa bumi  
 Musim semi telah tiba kembali  
 Membawa kehidupan yang baru lagi
+
+## Alam Semesta
+
+Bintang-bintang berkilauan  
+Di kegelapan malam sunyi  
+Galaksi membentang memukau  
+Rahasia cosmos tak terpahami
+
+Nebula warna-warni indah  
+Planet-planet menari berputar  
+Aurora bercahaya gemilang  
+Di angkasa raya membentang
+
+Keajaiban tanpa batas  
+Misteri ruang dan waktu  
+Mengajarkan kita kerendahan  
+Di hadapan semesta yang agung
